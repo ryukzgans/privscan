@@ -1,3 +1,3 @@
 # privscan
 
-### toolnya coming soon bre :v
+### maaf dek filenya di isekai
